@@ -1,5 +1,5 @@
 **Chocolate Stout Cake**
-* 1 cup (235 ml) stout (such as Guinness)
+* 1 cup (235 ml) stout (such as Guinness) (another dark bear if that's what you have is ok)
 * 1 cup (2 sticks, 8 ounces or 230 grams) unsalted butter
 * 3/4 cup (65 grams) unsweetened cocoa powder (preferably Dutch-process)
 * 2 cups (230 grams) all purpose flour
